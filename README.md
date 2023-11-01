@@ -1,0 +1,1 @@
+# fryq.github.io
